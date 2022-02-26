@@ -1,1 +1,1 @@
-## Coming soon page for s3palace.com
+- Coming soon page for s3palace.com
